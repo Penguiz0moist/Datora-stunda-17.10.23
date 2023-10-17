@@ -1,0 +1,1 @@
+# Datora-stunda-17.10.23
